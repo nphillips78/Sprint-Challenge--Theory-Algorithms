@@ -69,6 +69,14 @@ b) Egg strategy
 
 ##### Exercise III
 
+a) I did not have enough time
+
+b) I did not have enough time
+
+
+
+
+
 
 
 
